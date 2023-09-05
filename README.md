@@ -1,4 +1,4 @@
-# IPFS ME ON WEB3 
+# WWEB3 PROFILES
 - 0xfania (1).jpg
 - 0xfania (2).jpg
 - 0xfania (3).jpg
