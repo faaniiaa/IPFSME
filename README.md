@@ -1,4 +1,4 @@
-# WEB3 PROFILE
+# WEB3 PROFILES
 - 0xfania (1).jpg
 - 0xfania (2).jpg
 - 0xfania (3).jpg
