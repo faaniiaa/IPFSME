@@ -1,4 +1,4 @@
-# MY WEB3 PROFILE
+# MY WEB3 PROFILES
 
 - 0xfania (1).jpp
 - 0xfania (2).jpg
